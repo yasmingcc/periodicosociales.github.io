@@ -1,1 +1,1 @@
-# periodicosociales.github.io
+# http://periodicosociales.github.io
